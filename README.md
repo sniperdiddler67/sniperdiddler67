@@ -1,9 +1,11 @@
-im so flattered to have a stalker wowoww.... big day.. !!!
+hi strife my favourite stalker ever in the world 
 
-![](https://files.catbox.moe/v7zd9q.png)
+![](https://files.catbox.moe/sfxh4u.webp)
 
-to answer you strife, i do actually !!!! by jeremy :-] isnt that wild?
-anyway since tf2 is on your dni i felt itd be funny to have something tf2 related here so.. yeah thanks for shouting me out mate im glad to be on your mind
+i dont think i will actually!! we seem to be big fans of eachother ^_^ enemies to lovers stay tuned
+also, not a homewrecker tbh.. he just got bored of you but its ok i wont 
 
-![](https://media1.tenor.com/m/oIMwR0CnENIAAAAd/tf2-scout-tf2.gif)
+us btw since you love thinking about me so much
+
+![](https://media1.tenor.com/m/umjm7GSkYPEAAAAd/tf2-gay.gif)
 
